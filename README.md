@@ -1,2 +1,0 @@
-# ProvokatorTeam
-Absensi
